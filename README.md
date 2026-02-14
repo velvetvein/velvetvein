@@ -1,3 +1,3 @@
-![me](https://files.catbox.moe/kj2t1v.png)
+![me](https://files.catbox.moe/h8502n.png)
 
-<img src="https://files.catbox.moe/kj2t1v.png" width="250">
+
