@@ -1,3 +1,3 @@
-![me](https://files.catbox.moe/h8502n.png)
+too lazy to delete ts
 
 
